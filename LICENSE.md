@@ -1,4 +1,4 @@
-#  
+#  Experience bee swarm simulator like never before with rare Scripts for bee swarm simulator, the #1 Script. Includes auto-collect and unlimited
 
 
 
